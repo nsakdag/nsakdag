@@ -1,4 +1,4 @@
-- 👋 Hi, I’m ENES AKDAG
+- 👋 Hi, I’m FADİME AKDAG
 - 📫 How to reach me nsakdag88@gmail.com
 
 <!---
